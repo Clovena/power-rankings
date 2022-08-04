@@ -1,1 +1,1 @@
-# power-rankings
+# Sixth City Dynasty Football League
